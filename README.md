@@ -7,3 +7,5 @@
 
 ### notion으로 확인해보세요🐥
 https://nonstop-debt-2ca.notion.site/2023-Mini-Project_ep1-ead33941350b4c228c4e0f404f0086ef
+
+![image](https://user-images.githubusercontent.com/114221089/210527242-329c35f9-7457-4df6-b25a-cb2819c7866d.png)
